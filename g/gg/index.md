@@ -36,21 +36,11 @@ Bundesgesetzblatt veröffentlicht:
 
 ## Präambel
 
-In Anerkennung eines geistigen Ursprungs des Menschen und im Streben, 
-die Gesetze von höherer geistiger Wahrheit abzuleiten wird dieses 
-Grundgesetz im Jahre 2017 für die Deutsche Nation gegeben. Es leitet 
-sich ab aus dem Grunggesetz von 1949. 
-Im Bewußtsein eines historischen Kontextes und einer geistigen und 
-weltlichen Entwicklung der Menschheit, soll dieses Gesetz Grundlage 
-sein im Zeitalter bestehender Nationen als gleichberechtigtes Glied 
-in einem vereinten Europa und einem Zusammenwachsen aller Nationen 
-der Welt, dem Frieden zu dienen. Das Deutsche Volk im Sinner aller 
-Staatsangehörigen hat sich kraft seiner verfassungsgebenden Gewalt 
-dieses Grundgesetz gegeben.
+In Anerkennung eines geistigen Ursprungs des Menschen und im Streben, die Gesetze von höherer geistiger Wahrheit abzuleiten wird dieses Grundgesetz im Jahre 2017 für die Deutsche Nation gegeben. Es leitet sich ab aus dem Grundgesetz von 1949. 
+Im Bewußtsein  historischen Kontextes und einer geistigen Entwicklung des Menschen und einer weltlichen Entwicklung der Menschheit, soll dieses Gesetz Grundlage sein im Zeitalter bestehender Nationen als gleichberechtigtes Glied 
+in einem vereinten Europa und einem Zusammenwachsen aller Nationen der Welt, dem Frieden zu dienen. Das Deutsche Volk im Sinne aller Deutschen Staatsangehörigen hat sich kraft seiner verfassungsgebenden Gewalt dieses Grundgesetz gegeben.
 Die dem Deutschen Staat Angehörigen in allen Bundesländern haben in freier 
-Selbstbestimmung die Einheit und Freiheit Deutschlands
-vollendet. Damit gilt dieses Grundgesetz für das gesamte Deutsche
-Volk.
+Selbstbestimmung die Einheit und Freiheit Deutschlands vollendet. Damit gilt dieses Grundgesetz für das gesamte Deutsche Volk.
 
 
 ## I. - Die Grundrechte
